@@ -16,9 +16,13 @@ Cette exposition etait en majeure partie sombre avec les projecteurs qui emmeten
 
 Le type d'instalation se decrit bien comme : immersif et comtemplatif. Le fait que nous nous assions sur des bancs pour mieu contempler est un exemple des deux type. Aussi les speakers intentionellement directioner pour que le fait de bouger nous attire les oreilles par-ci et par-la ; ce qui nous encourage a regarder chaque ecran.
 
+
+
 Pour les compasantes techniques, on a la liste suivante : Des cables, plusieurs tableaux pour les proecteurs, des projecteurs, des fils pour accrocher les tableaux, des speakers et un ordinateur pour pouvoir projeter les videos.
 
 Les elements neccesaires sont les suivants : Les differents types de bancs, les projecteurs, les fils, la sale, les cables, les speakers, les tableaux, la bande sonore, cache-fils et crochets.
+
+Par rapport a mon experience vecue, je pense premierement au fait qu'elle etait plesente et legere. Le fait que nous sommes libre de marcher ou de s'assoir ou meme de s'etendre etait tres bien pense. Aussi,je me souvient avoir un sens de legertee comme si que je devait seulement comtempler ce qu'il y a devant moi. L'emphase sur la projections des videos grace au jeux de lumiere combiner avec les effects sonores et la musique pique vraiment la curiosite et l'attention. Les transitions ramenent a chaque foi l'attention et on vit cette experience collectivement cet a dire qu'on se mettais a parler quand moins ce passait et quand sa transitionne, on se tait et on observe. Ce que j'ai vecu peut etre expliquer de la sorte : une agreable experience immersive qui a reussi a captiver mon attention grace aux changements dans l'eovre et a des positionements strategiques de tout type de materiel.
 
 ce que j'ai aimer le plus de l'expositions, cetait les differentes phases auxquelles nous avons pu assister. A chaque fois que je comencais a m'ennuyer d'une certaine phase, une transition superbe nous suprend et voila une autre phase. Le tout etait tres dynamique et l'atmosphere etait accentuee fortement par la musique. Je pense que la musique aidait vraiment a faire en sorte que ce soit une vraie experience et non une exposition comme les autres. 
 
