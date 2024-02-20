@@ -1,6 +1,6 @@
 Jeremy Shaw
 
-
+![oiopoi](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/8e64f660-bb1f-430a-80d8-7701e931d4f5)
 
 
 Phase Shifting Index, a la fonderie darling, organise par le muse d'art contemporain ( MAC )
