@@ -2,28 +2,23 @@ Jeremy Shaw
 
 Phase Shifting Index, a la fonderie darling, organise par le muse d'art contemporain ( MAC )
 
-
-
 C'est une exposition itinerante, puisque les gens ont choisi un endroit et sont venu installer leur exposition ( materiel deplacable ou mobile ), et elle est interieure car nous etions dans la fonderie Darling.
 
-
-Cette exposition etait en majeure partie sombre avec les projecteurs qui emmetent de la lumiere pour projeter des videos. Le fait que ce sont les seules lumieres dans la sale, notre attention est naturellement attiree vers les videos. Celles si sont une collections de danses, toutes dans des styles differents. Il y a des textes sous titres qui ouent tout le long des videos, et ceux-ci noud font comprendre que nous some dans le future. Il y a des bancs pour s'assoir : au debut, l'experience est tres calme. On entend toutes sortes de bruits differents en se promenant en raison des speakers superposees qui jouent de la musique d'embiance. Avec des transitions sonores et visuelles, on passe collectivement a travers plusieurs phases de developpement qui nous immerse vraiment dans l'experience.
+La date de notre visete c'est : mercredi le 31 janvier 2024
 
 L'oeuvre se nomme Phase Shifting Index.
 
 L'artiste derriere cette oeuvre se nomme Jeremy Shaw.
 
+Annee de la realisation de l'exposition : Mercredi le 31 Janvier 2024
 
-
-
-
-
-
-
+Cette exposition etait en majeure partie sombre avec les projecteurs qui emmetent de la lumiere pour projeter des videos. Le fait que ce sont les seules lumieres dans la sale, notre attention est naturellement attiree vers les videos. Celles si sont une collections de danses, toutes dans des styles differents. Il y a des textes sous titres qui ouent tout le long des videos, et ceux-ci noud font comprendre que nous some dans le future. Il y a des bancs pour s'assoir : au debut, l'experience est tres calme. On entend toutes sortes de bruits differents en se promenant en raison des speakers superposees qui jouent de la musique d'embiance. Avec des transitions sonores et visuelles, on passe collectivement a travers plusieurs phases de developpement qui nous immerse vraiment dans l'experience.
 
 Le type d'instalation se decrit bien comme : immersif et comtemplatif. Le fait que nous nous assions sur des bancs pour mieu contempler est un exemple des deux type. Aussi les speakers intentionellement directioner pour que le fait de bouger nous attire les oreilles par-ci et par-la ; ce qui nous encourage a regarder chaque ecran.
 
 Pour les compasantes techniques, on a la liste suivante : Des cables, plusieurs tableaux pour les proecteurs, des projecteurs, des fils pour accrocher les tableaux, des speakers et un ordinateur pour pouvoir projeter les videos.
+
+Les elements neccesaires sont les suivants : Les differents types de bancs, les projecteurs, les fils, la sale, les cables, les speakers, les tableaux, la bande sonore, cache-fils et crochets.
 
 ce que j'ai aimer le plus de l'expositions, cetait les differentes phases auxquelles nous avons pu assister. A chaque fois que je comencais a m'ennuyer d'une certaine phase, une transition superbe nous suprend et voila une autre phase. Le tout etait tres dynamique et l'atmosphere etait accentuee fortement par la musique. Je pense que la musique aidait vraiment a faire en sorte que ce soit une vraie experience et non une exposition comme les autres. 
 
