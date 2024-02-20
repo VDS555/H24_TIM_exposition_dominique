@@ -23,7 +23,7 @@ Cette exposition etait en majeure partie sombre avec les projecteurs qui emmeten
 
 Le type d'instalation se decrit bien comme : immersif et comtemplatif. Le fait que nous nous assions sur des bancs pour mieu contempler est un exemple des deux type. Aussi les speakers intentionellement directioner pour que le fait de bouger nous attire les oreilles par-ci et par-la ; ce qui nous encourage a regarder chaque ecran.
 
-
+![MicrosoftTeams-image (7)](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/172bd612-4111-4ed4-9bb5-e2ece494a3ae)
 
 Pour les compasantes techniques, on a la liste suivante : Des cables, plusieurs tableaux pour les proecteurs, des projecteurs, des fils pour accrocher les tableaux, des speakers et un ordinateur pour pouvoir projeter les videos.
 
