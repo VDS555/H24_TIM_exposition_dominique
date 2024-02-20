@@ -21,6 +21,10 @@ Annee de la realisation de l'exposition : Mercredi le 31 Janvier 2024
 
 Cette exposition etait en majeure partie sombre avec les projecteurs qui emmetent de la lumiere pour projeter des videos. Le fait que ce sont les seules lumieres dans la sale, notre attention est naturellement attiree vers les videos. Celles si sont une collections de danses, toutes dans des styles differents. Il y a des textes sous titres qui ouent tout le long des videos, et ceux-ci noud font comprendre que nous some dans le future. Il y a des bancs pour s'assoir : au debut, l'experience est tres calme. On entend toutes sortes de bruits differents en se promenant en raison des speakers superposees qui jouent de la musique d'embiance. Avec des transitions sonores et visuelles, on passe collectivement a travers plusieurs phases de developpement qui nous immerse vraiment dans l'experience.
 
+![MicrosoftTeams-image (9)](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/94cf1199-bb96-478c-982b-b7ff006be632)
+
+
+
 Le type d'instalation se decrit bien comme : immersif et comtemplatif. Le fait que nous nous assions sur des bancs pour mieu contempler est un exemple des deux type. Aussi les speakers intentionellement directioner pour que le fait de bouger nous attire les oreilles par-ci et par-la ; ce qui nous encourage a regarder chaque ecran.
 
 ![MicrosoftTeams-image (12)](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/f5b5fa4b-156a-4d31-934c-b2640dfbe41f)
