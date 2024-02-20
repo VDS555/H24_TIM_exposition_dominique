@@ -11,6 +11,8 @@ La date de notre visete c'est : mercredi le 31 janvier 2024
 
 L'oeuvre se nomme Phase Shifting Index.
 
+![MicrosoftTeams-image (7)](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/f1e46a9d-a29b-4514-8046-66cfe412ca4a)
+
 L'artiste derriere cette oeuvre se nomme Jeremy Shaw.
 
 ![showshawman](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/d8c0aea3-fac4-408b-9758-1efc4dbaceca)
