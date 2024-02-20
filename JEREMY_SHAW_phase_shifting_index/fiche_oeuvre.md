@@ -3,12 +3,15 @@ Jeremy Shaw
 Phase Shifting Index, a la fonderie darling, organise par le muse d'art contemporain ( MAC )
 
 
+
 C'est une exposition itinerante, puisque les gens ont choisi un endroit et sont venu installer leur exposition ( materiel deplacable ou mobile ), et elle est interieure car nous etions dans la fonderie Darling.
 
 
+Cette exposition etait en majeure partie sombre avec les projecteurs qui emmetent de la lumiere pour projeter des videos. Le fait que ce sont les seules lumieres dans la sale, notre attention est naturellement attiree vers les videos. Celles si sont une collections de danses, toutes dans des styles differents. Il y a des textes sous titres qui ouent tout le long des videos, et ceux-ci noud font comprendre que nous some dans le future. Il y a des bancs pour s'assoir : au debut, l'experience est tres calme. On entend toutes sortes de bruits differents en se promenant en raison des speakers superposees qui jouent de la musique d'embiance. Avec des transitions sonores et visuelles, on passe collectivement a travers plusieurs phases de developpement qui nous immerse vraiment dans l'experience.
 
+L'oeuvre se nomme Phase Shifting Index.
 
-
+L'artiste derriere cette oeuvre se nomme Jeremy Shaw.
 
 
 
