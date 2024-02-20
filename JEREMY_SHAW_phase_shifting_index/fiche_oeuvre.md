@@ -25,6 +25,8 @@ Cette exposition etait en majeure partie sombre avec les projecteurs qui emmeten
 
 ![MicrosoftTeams-image (11)](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/f6cb457f-3473-4a7b-be05-63edfb23b91e)
 
+![MicrosoftTeams-image (13)](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/2bc7dd67-a03d-42c2-9313-bf9c8c485f1c)
+
 Le type d'instalation se decrit bien comme : immersif et comtemplatif. Le fait que nous nous assions sur des bancs pour mieu contempler est un exemple des deux type. Aussi les speakers intentionellement directioner pour que le fait de bouger nous attire les oreilles par-ci et par-la ; ce qui nous encourage a regarder chaque ecran.
 
 ![MicrosoftTeams-image (10)](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/df272380-cb34-4ec9-b406-eda2ca5119a7)
