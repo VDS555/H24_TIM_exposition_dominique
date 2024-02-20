@@ -1,5 +1,8 @@
 Jeremy Shaw
 
+![avatars-000573286386-5vtn1c-t500x500](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/7370d771-d3df-4203-9886-37221bcb7175)
+
+
 Phase Shifting Index, a la fonderie darling, organise par le muse d'art contemporain ( MAC )
 
 C'est une exposition itinerante, puisque les gens ont choisi un endroit et sont venu installer leur exposition ( materiel deplacable ou mobile ), et elle est interieure car nous etions dans la fonderie Darling.
