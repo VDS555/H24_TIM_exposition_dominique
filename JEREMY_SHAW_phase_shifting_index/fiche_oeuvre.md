@@ -1,6 +1,6 @@
 Jeremy Shaw
 
-![avatars-000573286386-5vtn1c-t500x500](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/7370d771-d3df-4203-9886-37221bcb7175)
+
 
 
 Phase Shifting Index, a la fonderie darling, organise par le muse d'art contemporain ( MAC )
@@ -12,6 +12,8 @@ La date de notre visete c'est : mercredi le 31 janvier 2024
 L'oeuvre se nomme Phase Shifting Index.
 
 L'artiste derriere cette oeuvre se nomme Jeremy Shaw.
+
+![showshawman](https://github.com/SylvieFrancois/H24_TIM_exposition/assets/143841849/d8c0aea3-fac4-408b-9758-1efc4dbaceca)
 
 Annee de la realisation de l'exposition : Mercredi le 31 Janvier 2024
 
